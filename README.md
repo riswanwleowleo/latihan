@@ -1,0 +1,2 @@
+# latihan
+repositori pertama saya
